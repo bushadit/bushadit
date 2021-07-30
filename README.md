@@ -2,7 +2,7 @@
 
 If you want to see some silly pics or random tweets about e-sports, follow me on:
 
-Twitter: @M1nkko break;
+Twitter: @M1nkko
 Instagram: @go.mesz
 
 

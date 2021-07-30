@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there, I'm a curious brazilian trying to fix errors 👋
 
 <!--
 **bushadit/bushadit** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

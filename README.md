@@ -1,4 +1,4 @@
-### Hi there, I'm a curious brazilian trying to fix errors 👋
+### Hi there, I'm a curious brazilian 👋
 
 If you want to see some silly pics or random tweets about e-sports, follow me on:
 
